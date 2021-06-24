@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yroblolpi
+- 👀 I’m interested in skript coding
+- 🌱 I’m currently learning skript
+- 📫 How to reach me discord: yroblolpi#6969
